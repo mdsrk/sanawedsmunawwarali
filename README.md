@@ -1,1 +1,1 @@
-https://github.com/mdsrk/sanawedsmunawwarali
+https://mdsrk.github.io/sanawedsmunawwarali/
